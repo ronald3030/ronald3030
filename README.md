@@ -12,7 +12,8 @@
 ### 📬 **How to reach me?**  
 📧 Email: [familiasfrias@gmail.com](mailto:familiasfrias@gmail.com)  
 🔗 GitHub: [github.com/ronald3030](https://github.com/ronald3030)  
-🔗 LinkedIn: [Ronald Familia Frías](https://www.linkedin.com/in/ronald-familia-b001b120a/)  
+🔗 LinkedIn: [Ronald Familia](https://www.linkedin.com/in/ronald-familia-b001b120a/)  
+📄 Resume: [Ronald Familia](https://drive.google.com/file/d/1lFyGT37FaoqQYXX7kwQuOvVKtmHBmKll/view)  
 
 ---
 
