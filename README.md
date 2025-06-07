@@ -13,7 +13,7 @@
 📧 Email: [familiasfrias@gmail.com](mailto:familiasfrias@gmail.com)  
 🔗 GitHub: [github.com/ronald3030](https://github.com/ronald3030)  
 🔗 LinkedIn: [Ronald Familia](https://www.linkedin.com/in/ronald-familia-b001b120a/)  
-📄 Resume: [Ronald Familia](https://drive.google.com/file/d/1lFyGT37FaoqQYXX7kwQuOvVKtmHBmKll/view)  
+📄 Resume: [Ronald Familia](https://drive.google.com/file/d/1f7UDaO3a4P5RX_uqR_e5vqaDj6rzWl00/view)  
 
 ---
 
